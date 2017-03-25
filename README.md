@@ -1,0 +1,1 @@
+Informação sobre todas os Distritos, Concelhos e freguesias de portugal. Este apanhado data de 2013, período anterior à união das Freguesias, resultante da reforma administrativa nacional.
